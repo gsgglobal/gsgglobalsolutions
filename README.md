@@ -1,4 +1,5 @@
-Best ERP Software for Manufacturers | Top ERP Systems in UK 
+Microsoft Dynamics 365 Partner | Dynamics CRM Consulting Services
 
-Gsg Global Solutions is one of the best ERP Software in the UK for Manufacturers. Top ERP that simplifies your work, improves the process and reduces cost. 
-https://www.gsgglobalsolutions.com/erp-software-for-manufacturing-business
+Gsg Global Solutions is a Microsoft Dynamics gold partner in the UK to accelerate your business with Intelligent dynamics CRM Consulting Services.
+
+https://www.gsgglobalsolutions.com/dynamics-crm-consulting-services
